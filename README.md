@@ -4,4 +4,3 @@
 - Pronouns: he/him
 
 I like fishing around in places I shouldn't be and breaking my systems in odd ways.  
-And I spend more time modding games than playing them. 
